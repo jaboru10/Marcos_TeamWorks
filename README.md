@@ -1,2 +1,2 @@
 # Marcos_TeamWorks
-Proyecto colaborativo
+waiting for a partner
